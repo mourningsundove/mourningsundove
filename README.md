@@ -5,9 +5,9 @@
 
 
 
-⋆˙⟡ aether or mocha, 17 yo  .ᐟ.ᐟ  belgian , spanish , french , greek. 
+⋆˙⟡ aether or mocha, 17 yo (29,09,08) .ᐟ.ᐟ  belgian , spanish , french , greek. 
 
-I speak French along with English, I'd say i'm quite fluent. ۶ৎ + currentlly learning spanish and chinese.
+I speak French along with English, I'd say i'm quite fluent. ۶ৎ + currently learning spanish and chinese.
 
 <img width="750" height="260" alt="image" src="https://github.com/user-attachments/assets/5dc7fc10-18a4-40aa-8c6c-8043113e6a38" />
 
@@ -24,5 +24,6 @@ BYI, I am chronically ill, while people  often keep those  things to themselves 
 
 I am also strongly against generative AI. If you think it is okay to ruin our planet, firmly block me. There is no "art" or "creativeness" in an artificial intelligence that feeds off earth's resources.
 
+<img width="640" height="236" alt="image" src="https://github.com/user-attachments/assets/0d3b5f6a-667f-4322-abea-1ec0560edd8f" />
 
-
+If you have an issue with any of my moots, KEEP IT PERSONAL! I do not want to be dragged in unnecessary drama again. 
