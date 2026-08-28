@@ -9,4 +9,5 @@
 
 I speak French along with English, I'd say i'm quite fluent. ۶ৎ + currentlly learning spanish and chinese.
 
-<img width="1199" height="154" alt="image" src="https://github.com/user-attachments/assets/ac90f648-b2bf-4dcc-8f00-ed229be1e80b" />
+<img width="750" height="260" alt="image" src="https://github.com/user-attachments/assets/5dc7fc10-18a4-40aa-8c6c-8043113e6a38" />
+
