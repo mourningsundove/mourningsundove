@@ -11,3 +11,6 @@ I speak French along with English, I'd say i'm quite fluent. ۶ৎ + currentlly 
 
 <img width="750" height="260" alt="image" src="https://github.com/user-attachments/assets/5dc7fc10-18a4-40aa-8c6c-8043113e6a38" />
 
+I TRY not to hide on PT, but I will if I  genuinely  consider  you  as  a threat to  my  peace.
+
+I  also want  to clarify  that yes, my  typing is wonky, but that is quite literally because my keyboard  is 10 years old.
