@@ -22,5 +22,7 @@ I  also want  to clarify  that yes, my  typing is wonky, but that is quite liter
 
 BYI, I am chronically ill, while people  often keep those  things to themselves ; I don't. I think it's  important for  people to know what they're  getting into when they  start interacting with a new person, especially because not everyone can handle  this. I  am  taking this opportunity to  say that apart  from AD(H)D,  I have been diagnosed with GAD  (Generalized Anxiety Disorder)  and  Depression. Again, this is only  to  sensibilize  you about the kind  of person  you  could be interacting with  !
 
+I am also strongly against generative AI. If you think it is okay to ruin our planet, firmly block me. There is no "art" or "creativeness" in an artificial intelligence that feeds off earth's resources.
+
 
 
