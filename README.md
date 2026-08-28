@@ -13,6 +13,9 @@ I speak French along with English, I'd say i'm quite fluent. ۶ৎ + currentlly 
 
 I TRY not to hide on PT, but I will if I  genuinely  see  you  as  a threat to  my  peace.
 
+I am C+H free if  I am alone. But I do NOT wish to interact with  following fandoms apart  from my friends : Hazbin Hotel,  Helluva Boss, The Freak Circus, Project Moon, Nitro+CHiral, ..
+
 I  also want  to clarify  that yes, my  typing is wonky, but that is quite literally because my keyboard  is 10 years old.
 
-BYI, I am chronically ill, while people  often keep those  things to themselves ; I don't. I think it's  important for  people to know what they're  getting into when they  start interacting with a new person, especially because not everyone can handle  this. By chronic illnesses, I mean asthma,  depression,   generalized anxiety disorder and adhd.
+BYI, I am chronically ill, while people  often keep those  things to themselves ; I don't. I think it's  important for  people to know what they're  getting into when they  start interacting with a new person, especially because not everyone can handle  this. I  am  taking this opportunity to  say that apart  from AD(H)D,  I have been diagnosed with GAD  (Generalized Anxiety Disorder)  and  Depression. Again, this is only  to  sensibilize  you about the kind  of person  you  could be interacting with  !
+
