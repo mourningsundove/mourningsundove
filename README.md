@@ -27,3 +27,5 @@ I am also strongly against generative AI. If you think it is okay to ruin our pl
 <img width="640" height="236" alt="image" src="https://github.com/user-attachments/assets/0d3b5f6a-667f-4322-abea-1ec0560edd8f" />
 
 If you have an issue with any of my moots, KEEP IT PERSONAL! I do not want to be dragged in unnecessary drama again. 
+
+!! if you are a 'friend'/mutual of the person known as Ven back on +18 server firmly dni.  !!
