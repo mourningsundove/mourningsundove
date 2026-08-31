@@ -29,5 +29,4 @@ I am also strongly against generative AI. If you think it is okay to ruin our pl
 If you have an issue with any of my moots, KEEP IT PERSONAL! I do not want to be dragged in unnecessary drama again. 
 
 !! if you are a 'friend'/mutual of the person known as Ven back on +18 server firmly dni.  !!
-<img width="1080" height="781" alt="image" src="https://github.com/user-attachments/assets/f2d6e8f1-af80-4e1d-9b76-2f15df635ec2" />
 
